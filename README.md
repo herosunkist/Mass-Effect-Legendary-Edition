@@ -241,4 +241,4 @@ Mass Effect Legendary Edition is the full free version, offering all features an
 Don't miss out on the chance to experience the full saga of Mass Effect Legendary Edition. Download now and embark on your adventure!
 
 ---
-**Last updated:** 2026-11-06 11:47:36 UTC
+**Last updated:** 2026-11-06 18:52:08 UTC
